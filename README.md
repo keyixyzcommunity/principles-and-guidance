@@ -1,4 +1,5 @@
-# principles-and-guidance
+# principles-and-practices
+Our Culture
 Lets take a step towards some kind of central group oath or constitution or something
 
 Social patterns:
