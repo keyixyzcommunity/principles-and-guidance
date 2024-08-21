@@ -10,4 +10,4 @@ Do don't list:
  - paid marketing - paid pump calls, paid publicity
 
 Keywords:
- - organic content - human made work, not synthetic 'AI' work (psychological asbestos will require an AI abatement campaign once they name how it harms people) and with it, organic growth of ideas, human ideas
+ - organic content - human made work, not synthetic 'AI' work (psychological asbestos will require an AI abatement campaign once they name how it harms people) and with it, organic growth of ideas, human ideas. Terra for Terrans. By humans for humans.
